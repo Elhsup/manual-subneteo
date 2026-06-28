@@ -156,7 +156,11 @@ La verdad, todas las clases trabajan con el mismo principio, solo que como bien 
 
 ## 👋 DESPEDIDA Y AGRADECIMIENTOS 👋
 
-SEÑORAS Y SEÑORES, HEMOS TERMINADO. Gracias por estar acá. Un salud
+SEÑORAS Y SEÑORES, HEMOS TERMINADO. Gracias por estar acá. Un saludo a mi mamá, mi abuela, mi hermana, mi papá. Gracias por todo. Si pueden aporten money por ahí, tengo PayPal, me invitan un perro 🌭 o como quieran. ¡Me cansé, chao! ✌️
+
+
+Personas que han revisado este documento:
+Dios, yo, Mi IA (que la quiero mucho), Goku, Juan, Diego Maradona, La mortadela intergalactica, Firulais, Mishu mishu, Patroclo, El rey Boo y otros mas 
 
 ---
 <br>
